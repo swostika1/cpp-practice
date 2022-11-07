@@ -1,2 +1,2 @@
 # Hello,
-I am sojecostika and this is cool 
+I am swostika and this is cool 
